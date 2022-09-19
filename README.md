@@ -8,8 +8,8 @@
 - Whatsapp : +91 9591243682
 - or 
 - SCAN IT
-![image](https://user-images.githubusercontent.com/113786288/191040296-80e5e954-8195-4797-a790-44678ba725e9.png)
-<br/>
+- ![image](https://user-images.githubusercontent.com/113786288/191040296-80e5e954-8195-4797-a790-44678ba725e9.png)
+- <br/>
 - 🔗 LinkedIn : 
 - visit website : https://www.linkedin.com/in/ranjith-kumar-s-5343aa218
 - or 
