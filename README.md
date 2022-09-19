@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ranjith-Kumar-47
-- 👀 I’m interested in working the android and web applications
+- 👀 I’m interested in working the android applications and web development.
 - 🌱 I’m currently learning core java , Rest Api , Sqlite Local Database , Mysql database ,  Firebase , Kotlin basic , android studio , android applicatoin , web development
 - 💞️ I’m looking to collaborate on project based on android application and web development.
 - 📫 How to reach me:
