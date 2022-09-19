@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - 📞 Phone no : +91 9591243682
 - 📧 Gmail : ranrock047@gmail.com.
-- Whatsapp : +91 9591243682
+- 💬 Whatsapp : +91 9591243682
 - or 
 - SCAN IT
 - ![image](https://user-images.githubusercontent.com/113786288/191040296-80e5e954-8195-4797-a790-44678ba725e9.png)
