@@ -19,7 +19,7 @@
 - visit website : https://www.instagram.com/_ranjithkumar47_/
 - or
 - SCAN IT 
-- ![image](https://user-images.githubusercontent.com/113786288/191666683-9540c403-8d6d-4bab-822c-4398681ea6b4.png)
+- ![image](https://user-images.githubusercontent.com/113786288/191668998-b8b77f26-c304-4803-88d2-c8d5a357d96c.png)
 
 
 <!---
