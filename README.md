@@ -8,13 +8,13 @@
 - 💬 Whatsapp : +91 9591243682
 - or 
 - SCAN IT
-- ![image](https://user-images.githubusercontent.com/113786288/191040296-80e5e954-8195-4797-a790-44678ba725e9.png)
+- ![image](https://user-images.githubusercontent.com/113786288/191669543-9bb38662-e4d4-4879-8a45-7243516993b2.png)
 - <br/>
 - 🔗 LinkedIn : 
 - visit website : https://www.linkedin.com/in/ranjith-kumar-s-5343aa218
 - or 
 - SCAN IT <br/>
-- ![image](https://user-images.githubusercontent.com/113786288/191040862-6cd2a572-2304-4e68-b0d8-067e00cd3811.png)
+- ![image](https://user-images.githubusercontent.com/113786288/191669613-0e04f640-67a0-48e3-801c-c935875a84e2.png)
 - 🔗 Instagram : 
 - visit website : https://www.instagram.com/_ranjithkumar47_/
 - or
