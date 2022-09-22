@@ -15,6 +15,12 @@
 - or 
 - SCAN IT <br/>
 - ![image](https://user-images.githubusercontent.com/113786288/191040862-6cd2a572-2304-4e68-b0d8-067e00cd3811.png)
+- 🔗 Instagram : 
+- visit website : https://www.instagram.com/_ranjithkumar47_/
+- or
+- SCAN IT 
+- ![image](https://user-images.githubusercontent.com/113786288/191666683-9540c403-8d6d-4bab-822c-4398681ea6b4.png)
+
 
 <!---
 Ranjith-Kumar-47/Ranjith-Kumar-47 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
